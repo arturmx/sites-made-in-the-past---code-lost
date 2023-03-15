@@ -10,4 +10,4 @@ https://karolinalatus.pl
 https://go-fitness.pl/
 
 
-https://heroesconf.pl/
+https://heroesconf.pl/ 
